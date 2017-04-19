@@ -1,3 +1,3 @@
 Visca Catalonia visca Barcelona
 
-Barcelona VS juventus
+Barcelona VS juventus 0-0 
