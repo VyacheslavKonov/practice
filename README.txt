@@ -1,10 +1,1 @@
-тртћрћт тћрћт
-
-ртћрћтр 
-
-
-ртћр
-рћ
-р
-тћ
-р
+Visca Catalonia visca Barcelona
